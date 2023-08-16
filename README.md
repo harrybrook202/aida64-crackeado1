@@ -1,1 +1,1 @@
-# aida64-crackeado1
+Download [aida64 crackeado](https://crackeadoativador.com/aida-crackeado-license-key/), Engineer for comprehensive system diagnostics, benchmarking, and hardware monitoring on your Windows-based computer.
